@@ -1,3 +1,3 @@
 # FirstRepo
 
-just a sample repo btw why i am laughing now :) working with different account
+Added a motivation comment i found on youtube video
